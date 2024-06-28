@@ -6,5 +6,6 @@ Meu nome é Gabi
 - Estou me desenvolvendo na linguagem de JavaScript
 - Utilizo esse espaço para minha organizição e compartilhamento dos meus projetos desenvolvidos
 
+════ ⋆★⋆ ════
 
-![](https://media1.tenor.com/m/wdOV22IBmfQAAAAC/haerin-newjeans.gif)
+![](https://media1.tenor.com/m/0X0iKpCbtvsAAAAd/danielle-danielle-new-jeans.gif)
