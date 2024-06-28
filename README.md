@@ -8,4 +8,4 @@ Meu nome é Gabi
 
 ════ ⋆★⋆ ════
 
-![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdTljaGhtOTQwc3RxcnZka25sNXNkNGViY2c1aWZseDBkbTllaXp6ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Bnyg9FoCCis9ZyViRZ/giphy.webp)
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExenpoNG95dHB6bTczY2l5cHNzcnVod2hyMjRqMDhlN2N6OHZrZzBndyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/miwrPp8EKQ07KOS4VI/giphy.webp)
