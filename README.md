@@ -8,4 +8,4 @@ Meu nome é Gabi
 
 ════ ⋆★⋆ ════
 
-![](https://media1.tenor.com/m/0X0iKpCbtvsAAAAd/danielle-danielle-new-jeans.gif)
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdTljaGhtOTQwc3RxcnZka25sNXNkNGViY2c1aWZseDBkbTllaXp6ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Bnyg9FoCCis9ZyViRZ/giphy.webp)
