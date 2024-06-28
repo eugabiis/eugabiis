@@ -7,4 +7,4 @@ Meu nome é Gabi
 - Utilizo esse espaço para minha organizição e compartilhamento dos meus projetos desenvolvidos
 
 
-![](https://giphy.com/gifs/kpop-aespa-karina-ZBasOGXvz760zOSqpx)
+![](https://media1.tenor.com/m/wdOV22IBmfQAAAAC/haerin-newjeans.gif)
